@@ -1,0 +1,1 @@
+# manipulasi.1
